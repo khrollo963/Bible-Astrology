@@ -1,4 +1,4 @@
-# Bible-Astrology-
+# Bible-Astrology- https://khrollo963.github.io/Bible-Astrology/
 A wheel based on the Theurgical Abrahamic (Specifically Judaeo-Christian) "Explicit Name/ Shem Hamaporash" a 216 lettered name of God with 72 sets of 3. Shows all the corresponding Kabbalistic Angels and Solomonic Demons aligning with the days of the year, tribes of Israel, divine name Banners and MORE!!!
 # Wheel of the Shem ha-Mephorash
 
